@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows preset with Shotcut for PC | Shotcut for Windows vip Preset: 4K-export & noise-reduction. Featuring 4K-export and
 
 
 
